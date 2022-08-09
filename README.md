@@ -1,3 +1,3 @@
-Printf Collabration Projects
+Printf Collaboration Projects
 Partners
 	Nelson Alexander
